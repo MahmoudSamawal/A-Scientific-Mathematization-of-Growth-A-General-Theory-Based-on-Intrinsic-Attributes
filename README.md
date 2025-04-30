@@ -1,0 +1,1 @@
+# A-Scientific-Mathematization-of-Growth-A-General-Theory-Based-on-Intrinsic-Attributes
